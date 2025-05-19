@@ -1,2 +1,0 @@
-# Aiimg.com
-For studyi
